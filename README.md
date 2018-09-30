@@ -8,8 +8,8 @@ The menu was pretty interesting- an eclectic mix of Indo-Chinese cuisine ! Moder
 In terms of statistics- the table below presents a bird’s eye-view:
   <ul type=square>
 <li>TOTAL SALE OF GOODS- 		30,850</li>
-<li>COST OF MATERIAL <i>(PURCHASE)</i>-	27,672</li>
-<li><b>NET PROFIT-				3,178</b></li>
+<li>COST OF MATERIAL(PURCHASE)-	27,672</li>
+<li>NET PROFIT-				3,178</li>
   </ul>
 <br>The profits are commendable but the lessons learnt by the students involved are enriching and fruitful. Right from meticulous planning to time-bound targets, this enterprise was a great experience. There may have been few pitfalls but all have contributed to something larger than just an experimental exercise. Students are now better equipped with the basics of running a small-scale business, lessons in team-work, handling pressure and of course time-management.<br><br>
 With a fervent hope for more such opportunities in the near future, the school looks forward to participating this year and augmenting students’ knowledge by hands-on learning and discover the effective way to entrepreneurship.<br>
