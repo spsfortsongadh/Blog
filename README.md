@@ -1,4 +1,4 @@
-<h2><font color = "brown"><b>‘TEACH A MAN TO FISH’</b>- <i>SCHOOL ENTERPRISE CHALLENGE 2017</i><br><font/><h2/><br>
+<h2><font color = "brown"><b>‘TEACH A MAN TO FISH’</b>- <i>SCHOOL ENTERPRISE CHALLENGE 2017</i></font></h2><br><br>
 The stage couldn’t have been set any better, the much talked-about school enterprise challenge beckoned and 22 students of Singhania Public School jumped into the fray.<br><br>
  The main motive?  To learn the ropes to a successful start-up business and hone entrepreneurial skills…<br>
 So, armed with loads of confidence and enthusiasm to take this challenge to its glory, 22 students of Classes IX and X together joined forces under the mentorship of Mr Rushikesh Patil (Sr. Social Science Teacher) and stepped into the ever-fascinating world of commerce and trade.<br><br>
